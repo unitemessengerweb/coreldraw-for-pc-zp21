@@ -1,4 +1,4 @@
-# 
+# vip CorelDRAW for PC | CorelDRAW for Windows Tool | gradient-meshes + symbol-libraries is the best CorelDRAW for PC | CorelDRAW for Windows tool, featuring gradient-meshes and
 
 
 
